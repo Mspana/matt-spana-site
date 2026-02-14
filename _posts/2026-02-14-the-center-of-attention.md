@@ -71,3 +71,6 @@ I don't have a good conclusion. Just have to be better.
 Or maybe I just get some sleep.
 
 -Matt
+
+
+*Update:* Absolutely killed it at the airport lounge today.
